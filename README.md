@@ -1,0 +1,1 @@
+Gomony privacy policy
